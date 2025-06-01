@@ -28,7 +28,7 @@
 
 😄 Pronouns: he/him
 
-⚡ Fun fact: Pitch‑side at three consecutive Olympic Games and still believe the fastest emergency protocol is Ctrl + Z. Multitasking prowess increases with croissant intake.
+⚡ Fun fact: Pitch‑side at three consecutive Olympic and Paralympic Games and still believe the fastest emergency protocol is Ctrl + Z. Multitasking prowess increases with croissant intake.
 
 « Petit à petit, l’oiseau fait son nid » —little by little, the bird builds its nest. 
 Let’s innovate with empathy, inspire through sport, and code humanity into every algorithm—one line and one athlete at a time.
