@@ -1,4 +1,5 @@
 👋 Hi, I’m @Alston-Choong — Assistant Professor in Sports & Exercise Medicine, Performance Science, and Sport Sociology & Anthropology, coffee‑fuelled AI‑for‑Good builder, and dragon‑boat athlete, coach & IRO.
+
 👀 I’m interested in …
 • Building a Sport‑for‑Good Foundation so every underserved, disabled or LGBTQIA+ athlete can play, excel and thrive.
 • Researching environment ↔ athlete health, safeguarding, integrity & ethics, and AI/ML in sport governance, performance and health analytics.
@@ -22,7 +23,7 @@
 
 📫 How to reach me …
 💼 Work: alston@um.edu.my  
-💌 Personal: info@alstonchoong.com 🌐 Website: alstonchoong.com 
+💌 Personal: info@alstonchoong.com 🌐 Website: https://alstonchoong.com 
 🤝 Social: LinkedIn:@alstonchoong · Facebook/Instagram/Threads:@dr.alstonchoong · X/ Mastodon:@alstonchoong · Bluesky:@alstonchoong.bsky.social 
 
 😄 Pronouns: he/him
